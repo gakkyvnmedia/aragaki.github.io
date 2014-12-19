@@ -1,2 +1,2 @@
-aragaki.github.io
+gakkyvnmedia.github.io
 =================
