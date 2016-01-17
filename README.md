@@ -1,2 +1,0 @@
-gakkyvnmedia.github.io
-=================
